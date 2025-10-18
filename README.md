@@ -1,4 +1,4 @@
-# 👋🏾 Hi, I'm Obed Osei Kwame Nti
+# 👋🏾 Hi, I'm Obed Nti
 
 🎓 Computer Science & Visual and Performing Arts Student at Grambling State University  
 💻 UI/UX Designer | Creative Technologist | Software Developer | Visual Artist
