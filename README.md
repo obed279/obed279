@@ -44,10 +44,10 @@ With a strong foundation in **UI/UX design** and **Computer Science**, I aim to 
 ---
 
 ## 🌐 Connect with Me
-- LinkedIn: [Insert Link Here]  
-- Portfolio Website: [Insert Link Here]  
-- Instagram (O2_ART): [Optional Link]  
-- GitHub: [Your GitHub Profile URL]
+- LinkedIn: www.linkedin.com/in/obednti  
+- Portfolio Website: https://www.canva.com/design/DAGcuUkMUFo/VcHgCLJ3nfhUzqC9sg77MQ/edit?utm_content=DAGcuUkMUFo&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton 
+- Instagram (O2_ART): @o2_art. 
+  
 
 ---
 
