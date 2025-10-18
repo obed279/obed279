@@ -1,3 +1,5 @@
+
+<img src="https://github.com/obed279/obed279/blob/main/ChatGPT%20Image%20Oct%2018%2C%202025%2C%2006_47_22%20PM.png"/>
 # 👋🏾 Hi, I'm Obed Nti
 
 🎓 Computer Science & Visual and Performing Arts Student at Grambling State University  
